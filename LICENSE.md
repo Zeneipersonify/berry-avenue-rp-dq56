@@ -1,4 +1,4 @@
-#  
+#  Experience berry avenue rp like never before with hidden Script for berry avenue rp, the #1 Script. Includes auto-farm and undetectable for
 
 
 
